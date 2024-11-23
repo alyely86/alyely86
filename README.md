@@ -29,7 +29,7 @@ Here are some of the tools and languages I work with:
 
 ## 📫 Let's Connect!
 Want to chat or collaborate? Feel free to reach out!  
-- 📧 Email: *[alyasyly1386@example.com]*    
+- 📧 Email: *[alyasyly1386@gmail.com]*    
 
 ---
 
